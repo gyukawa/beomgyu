@@ -4,7 +4,7 @@
 
 ![Image](https://github.com/user-attachments/assets/e2d6af20-9df7-41b0-b6fd-effba04abe7e)
 
-[ata](https://seokryu.atabook.org/) [straw](https://soekryu.straw.page/) [carrd](https://gyukawas.carrd.co/)
+[ata](https://seokryu.atabook.org/) [carrd](https://gyukawas.carrd.co/)
 
 ![Image](https://github.com/user-attachments/assets/700a3f50-fe37-419c-b033-22186f829652)
 ![Image](https://github.com/user-attachments/assets/0492a6e1-cb62-4b93-9cc9-a00be6d71a56)
